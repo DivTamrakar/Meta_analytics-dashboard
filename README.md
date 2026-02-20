@@ -132,15 +132,6 @@ Performance comparison across campaigns
 
 Enhanced ROI tracking
 
-If you want, I can now help you create:
-
-✅ A strong GitHub profile bio
-
-✅ A professional LinkedIn project summary
-
-✅ A portfolio section combining all your dashboards (YouTube, Website, Meta, Instagram/Facebook) 🚀
-
-
 
 Screenshots / Demos
 Show what the dashboard looks like.
